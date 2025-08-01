@@ -1,6 +1,7 @@
-hey there!
+![dandicus](https://cdn.discordapp.com/attachments/1357628531089084496/1400694066517377144/IMG_3439.png?ex=688d9181&is=688c4001&hm=e24fd1b414c7c62d88b3f6fa9c8e4337725e44c328ca710a048df594ff609b7d&)
+<p align="center"> hey there!
 
-meet me at ANYWHERE but mainly at docks or roblox areas
+<p align="center"> meet me at ANYWHERE but mainly at docks or roblox areas
 
 any ship can interact, i also love c+h even if not stated—any touch is okay! 
 
