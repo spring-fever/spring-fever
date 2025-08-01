@@ -13,3 +13,5 @@
 <p align="center"> i am a VERY huge social butterfly, dont feel scared interacting with me! i also like coming up to c+h people, and whispering anyone i please whenever im bored
 
 >will kiss all dandy cosplays i see, sorry if it makes you uncomfortable!
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=spring-fever)
