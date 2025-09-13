@@ -3,7 +3,7 @@
 ">
 </p>
 
-$${\color{green}"...!"}$$
+$${\color{green}"Let ‎ me ‎ tell ‎ you ‎ about ‎ the ‎ cutest ‎ thing ‎ my ‎ little ‎ pet ‎ rock ‎ did ‎ yesterday!"}$$
 
 <p align="center"> hey there!
 
