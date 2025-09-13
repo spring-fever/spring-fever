@@ -18,7 +18,7 @@ $${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
 
 <p align="center"> i am a VERY huge social butterfly, dont feel scared interacting with me! i also like coming up to c+h people, and whispering anyone i please whenever im bored
 
-<p align="center"> taken by my lovely linn, dont do anything seriously weird
+<p align="center"> taken by my lovely astro linn, dont do anything seriously weird
 
 >will kiss all dandy cosplays i see, apologies if it's made anyone uncomfortable. i will read byf's/boundaries before i do, though
 
