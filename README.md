@@ -5,6 +5,9 @@
 
 $${\color{green}"Let ‎ me ‎ tell ‎ you ‎ about ‎ the ‎ cutest ‎ thing ‎ my ‎ little ‎ pet ‎ rock ‎ did ‎ yesterday!"}$$
 
+$${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
+
+
 <p align="center"> hey there!
 
 <p align="center"> meet me at ANYWHERE but mainly at docks or roblox areas
