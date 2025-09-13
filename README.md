@@ -3,6 +3,8 @@
 ">
 </p>
 
+$${\color{green}"...!"}$$
+
 <p align="center"> hey there!
 
 <p align="center"> meet me at ANYWHERE but mainly at docks or roblox areas
@@ -25,4 +27,4 @@
   <img width="390" height="350" src="https://cdn.discordapp.com/attachments/1357628531089084496/1401919971969335316/Untitled_Artwork.png?ex=68920737&is=6890b5b7&hm=fde4e6fc301477a0a8f690ec30c59753a4e23e6004a40b35ea4f791a1409aa59&&">
 </p>
 
-<p align="center"> "Cheer up, Astro! Everyone gets stage fright—including me!"
+$${\color{green}"Cheer ‎ up ‎ Astro!‎  Everyone ‎ gets ‎ stage ‎ fright,‎  including ‎ me!"}$$
