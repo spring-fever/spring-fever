@@ -1,12 +1,13 @@
 <p align="center">
-  <img width="390" height="500" src="https://cdn.discordapp.com/attachments/1357628531089084496/1408782104967516284/Untitled_Artwork.png?ex=68aafe13&is=68a9ac93&hm=d00bac0010367a2eadd8317ba0e1fed0cd209c80f74c8631918db46916d93259&">
+  <img width="390" height="500" src="https://github.com/user-attachments/assets/d6c407fd-2199-4d2a-be62-4b16789a034d"
+">
 </p>
 
 <p align="center"> hey there!
 
 <p align="center"> meet me at ANYWHERE but mainly at docks or roblox areas
 
-<p align="center"> any ship can interact, i also love c+h even if not stated—any touch is okay! 
+<p align="center "> any ship can interact, i also love c+h even if not stated—any touch is okay! 
 
 <p align="center"> i don't mind inspo, whether light or heavy, just please ask beforehand! what i dont like is when you're a complete obvious copy of my pony
 
