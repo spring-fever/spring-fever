@@ -28,8 +28,7 @@ $${\color{green}"Cheer ‎ up!‎  Everyone ‎ gets ‎ stage ‎ fright,‎  i
 <p align="center">
   <img width="890" height="890" src="https://github.com/user-attachments/assets/7066adc8-0e30-423a-a416-65a7a0281406" />
 </p>
-
 <p align="center">
-  <img width="490" height="350" src="https://github.com/user-attachments/assets/185ce571-1d3f-454d-b1cc-331a8c23dfa1" />
+  <img width="990" height="250" src="https://github.com/user-attachments/assets/0ba28694-ab06-4906-a2e8-e19bc5c57273" />
 </p>
 
