@@ -9,8 +9,6 @@ $${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
 
 <p align="center"> hey there!
 
-<p align="center"> meet me at ANYWHERE but mainly at docks or roblox areas
-
 <p align="center "> any ship can interact, i also love c+h even if not stated—any touch is okay! 
 
 <p align="center"> i don't mind inspo, whether light or heavy, just please ask beforehand! what i dont like is when you're a complete obvious copy of my pony
