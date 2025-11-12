@@ -23,10 +23,10 @@ $${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=spring-fever)
 
-$${\color{yellow}"Cheer ‎ up!‎  Everyone ‎ gets ‎ stage ‎ fright,‎  including ‎ me!"}$$
+$${\color{yellow}"—And ‎ the ‎ world ‎ screams, ‎ 'Kiss ‎ me, ‎ Son ‎ of ‎ God!'"}$$
 
 <p align="center">
-  <img width="890" height="890" src="https://github.com/user-attachments/assets/8c0ae72f-b65c-4a94-b073-95912d43ba18" />
+  <img width="890" height="890" src="https://github.com/user-attachments/assets/05862e77-877f-461c-9c7f-c63c71efcf44" />
 </p>
 <p align="center">
   <img width="990" height="250" src="https://cdn.discordapp.com/attachments/1357628531089084496/1438220331616833547/IMG_5631.jpg?ex=6916168f&is=6914c50f&hm=11a51581ed038cf41cba286ab41892d3967d796066fb9b676076e06a751e3e96&" />
