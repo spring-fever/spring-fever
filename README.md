@@ -29,6 +29,6 @@ $${\color{yellow}"Cheer ‎ up!‎  Everyone ‎ gets ‎ stage ‎ fright,‎  
   <img width="890" height="890" src="https://github.com/user-attachments/assets/7066adc8-0e30-423a-a416-65a7a0281406" />
 </p>
 <p align="center">
-  <img width="990" height="250" src="https://github.com/user-attachments/assets/f3091650-93dc-462e-9a0d-941fc6824a10" />
+  <img width="990" height="250" src="https://cdn.discordapp.com/attachments/1357628531089084496/1438220331616833547/IMG_5631.jpg?ex=6916168f&is=6914c50f&hm=11a51581ed038cf41cba286ab41892d3967d796066fb9b676076e06a751e3e96&" />
 </p>
 
