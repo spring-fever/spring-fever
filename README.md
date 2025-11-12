@@ -23,7 +23,7 @@ $${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=spring-fever)
 
-$${\color{green}"Cheer ‎ up!‎  Everyone ‎ gets ‎ stage ‎ fright,‎  including ‎ me!"}$$
+$${\color{yellow}"Cheer ‎ up!‎  Everyone ‎ gets ‎ stage ‎ fright,‎  including ‎ me!"}$$
 
 <p align="center">
   <img width="890" height="890" src="https://github.com/user-attachments/assets/7066adc8-0e30-423a-a416-65a7a0281406" />
