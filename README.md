@@ -29,4 +29,7 @@ $${\color{green}"Cheer ‎ up!‎  Everyone ‎ gets ‎ stage ‎ fright,‎  i
   <img width="890" height="890" src="https://github.com/user-attachments/assets/f5c0b242-1d33-4e2c-9884-4ef2ff0e3897" />
 </p>
 
+<p align="center">
+  <img width="490" height="350" src="https://github.com/user-attachments/assets/185ce571-1d3f-454d-b1cc-331a8c23dfa1" />
+</p>
 
