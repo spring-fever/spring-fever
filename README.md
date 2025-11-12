@@ -9,6 +9,8 @@ $${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
 
 <p align="center"> hey there!
 
+<p align="center"> i joke around and talk too much, please let me know if you are uncomfortable and if theres something about me or my personality you do not like. i will change my behavior accordingly without question.
+
 <p align="center "> any ship can interact, i also love c+h even if not stated—any touch is okay! 
 
 <p align="center"> i don't mind inspo, whether light or heavy, just please ask beforehand! what i dont like is when you're a complete obvious copy of my pony
