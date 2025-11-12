@@ -26,7 +26,7 @@ $${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
 $${\color{green}"Cheer ‎ up!‎  Everyone ‎ gets ‎ stage ‎ fright,‎  including ‎ me!"}$$
 
 <p align="center">
-  <img width="390" height="350" src="https://cdn.discordapp.com/attachments/1357628531089084496/1401919971969335316/Untitled_Artwork.png?ex=68920737&is=6890b5b7&hm=fde4e6fc301477a0a8f690ec30c59753a4e23e6004a40b35ea4f791a1409aa59&&">
+  <img width="890" height="890" src="https://github.com/user-attachments/assets/f5c0b242-1d33-4e2c-9884-4ef2ff0e3897" />
 </p>
 
 
