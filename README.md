@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="290" height="500" src="https://cdn.discordapp.com/attachments/1357628531089084496/1437689224643219476/ezgif.com-video-to-gif-converter.gif?ex=691427ee&is=6912d66e&hm=69e293c96ee8e4743282d6e332e4fe8476cc2aabec4a8b6e76586c79a898b3f6&" />
+  <img width="290" height="500" src="https://cdn.discordapp.com/attachments/1357628531089084496/1438527559900860546/ezgif.com-video-to-gif-converter.gif?ex=691734b0&is=6915e330&hm=56f96160e829588c07d117dc179d431e3f01c07b783d6d46c0fbbefc75128dd0&" />
 </p>
 
 $${\color{green}"Let ‎ me ‎ tell ‎ you ‎ about ‎ the ‎ cutest ‎ thing ‎ my ‎ little ‎ pet ‎ rock ‎ did ‎ yesterday!"}$$
