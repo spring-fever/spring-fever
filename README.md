@@ -1,3 +1,6 @@
+$${\color{yellow}"Now, ‎ you're ‎ the ‎ only ‎ one ‎ here ‎ who ‎ can ‎ tell ‎ me ‎ if ‎ it's ‎ true—"}$$
+$${\color{yellow}"that ‎ you ‎ love ‎ me. ‎ And ‎ I ‎ love ‎ me."}$$
+
 <p align="center">
   <img width="290" height="500" src="https://cdn.discordapp.com/attachments/1357628531089084496/1437689224643219476/ezgif.com-video-to-gif-converter.gif?ex=691427ee&is=6912d66e&hm=69e293c96ee8e4743282d6e332e4fe8476cc2aabec4a8b6e76586c79a898b3f6&" />
 </p>
@@ -25,7 +28,7 @@ $${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
 $${\color{yellow}"—And ‎ the ‎ world ‎ screams, ‎ 'Kiss ‎ me, ‎ Son ‎ of ‎ God!'"}$$
 
 <p align="center">
-  <img width="890" height="890" src="https://github.com/user-attachments/assets/2c7cad28-a195-4532-8fb9-9ec0e98d7973" />
+  <img width="890" height="890" src="https://github.com/user-attachments/assets/db3d048c-0ae9-4bf8-9ffa-bcf4b4481c97" />
 </p>
 <p align="center">
   <img width="990" height="250" src="https://cdn.discordapp.com/attachments/1357628531089084496/1438220331616833547/IMG_5631.jpg?ex=6916168f&is=6914c50f&hm=11a51581ed038cf41cba286ab41892d3967d796066fb9b676076e06a751e3e96&" />
