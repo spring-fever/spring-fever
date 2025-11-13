@@ -25,7 +25,7 @@ $${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
 $${\color{yellow}"—And ‎ the ‎ world ‎ screams, ‎ 'Kiss ‎ me, ‎ Son ‎ of ‎ God!'"}$$
 
 <p align="center">
-  <img width="890" height="890" src="https://github.com/user-attachments/assets/a620a960-0432-419d-99c6-2f3de6e1f92d" />
+  <img width="890" height="890" src="https://github.com/user-attachments/assets/18c28632-ae58-4398-a5db-15da8fa873d6" />
 </p>
 <p align="center">
   <img width="990" height="250" src="https://cdn.discordapp.com/attachments/1357628531089084496/1438220331616833547/IMG_5631.jpg?ex=6916168f&is=6914c50f&hm=11a51581ed038cf41cba286ab41892d3967d796066fb9b676076e06a751e3e96&" />
