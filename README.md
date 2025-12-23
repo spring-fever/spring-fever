@@ -1,6 +1,4 @@
-<p align="center">
-  <img width="290" height="500" src="https://cdn.discordapp.com/attachments/1357628531089084496/1438527559900860546/ezgif.com-video-to-gif-converter.gif?ex=691734b0&is=6915e330&hm=56f96160e829588c07d117dc179d431e3f01c07b783d6d46c0fbbefc75128dd0&" />
-</p>
+
 
 $${\color{green}"Let ‎ me ‎ tell ‎ you ‎ about ‎ the ‎ cutest ‎ thing ‎ my ‎ little ‎ pet ‎ rock ‎ did ‎ yesterday!"}$$
 
@@ -26,9 +24,6 @@ $${\color{yellow}"—And ‎ the ‎ world ‎ screams, ‎ 'Kiss ‎ me, ‎ So
 
 <p align="center">
   <img width="890" height="890" src="https://github.com/user-attachments/assets/11972ee0-b29b-4d33-803e-3b1da1d89afa" />
-</p>
-<p align="center">
-  <img width="990" height="250" src="https://cdn.discordapp.com/attachments/1357628531089084496/1438220331616833547/IMG_5631.jpg?ex=6916168f&is=6914c50f&hm=11a51581ed038cf41cba286ab41892d3967d796066fb9b676076e06a751e3e96&" />
 </p>
 
 ![](https://komarev.com/ghpvc/?username=spring-fever&color=yellow)
