@@ -22,10 +22,6 @@ $${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
 
 $${\color{yellow}"—And ‎ the ‎ world ‎ screams, ‎ 'Kiss ‎ me, ‎ Son ‎ of ‎ God!'"}$$
 
-<p align="center">
-  <img width="890" height="890" src="https://github.com/user-attachments/assets/11972ee0-b29b-4d33-803e-3b1da1d89afa" />
-</p>
-
 ![](https://komarev.com/ghpvc/?username=spring-fever&color=yellow)
 
 $${\color{yellow}"Yes, ‎ the ‎ world ‎ screams, ‎ 'Kiss ‎ me, ‎ Son ‎ of ‎ God!'"}$$
