@@ -5,7 +5,7 @@ $${\color{green}"Let ‎ me ‎ tell ‎ you ‎ about ‎ the ‎ cutest ‎ th
 $${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
 
 
-<p align="center"> hey there!
+<p align="center"> helloooo!
 
 <p align="center"> i joke around and talk too much, please let me know if you are uncomfortable and if theres something about me or my personality that you do not like. i will change my behavior accordingly without question. i'd like if you be direct about it too! communication is key
 
@@ -20,10 +20,10 @@ $${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
 >cant believe i have to say this now but all of my ponies will have my github. please dont fall for copycats!
 
 
-$${\color{yellow}"—And ‎ the ‎ world ‎ screams, ‎ 'Kiss ‎ me, ‎ Son ‎ of ‎ God!'"}$$
+$${\color{yellow}"If ‎ I ‎ could ‎ live ‎ in ‎ third ‎ person..."}$$
 
 ![](https://komarev.com/ghpvc/?username=spring-fever&color=yellow)
 
-$${\color{yellow}"Yes, ‎ the ‎ world ‎ screams, ‎ 'Kiss ‎ me, ‎ Son ‎ of ‎ God!'"}$$
+$${\color{yellow}"—Well, ‎ I ‎ don't ‎ think ‎ life ‎ would ‎ be ‎ much ‎ worse ‎ than ‎ it ‎ is."}$$
 
 $${\color{blue}@M—002 ‎ @slyliar 💤 . . .}$$
