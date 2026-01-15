@@ -29,5 +29,5 @@ $${\color{blue} ★ ‎ @M—002 ‎ @slyliar}$$
 $${\color{blue}‎  ‎   ‎  ‎   ‎    ‎  ‎  ‎ ‎   ‎  ‎ ‎   ‎   ‎     ‎   ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ᶻ 𝗓 𐰁 }$$
 
 <p align="center">
-<img width="1000" height="800" alt="image" src="https://github.com/user-attachments/assets/8c141162-f3d4-481a-832b-07ab5ba86113" />
+<img width="800" height="500" alt="image" src="https://github.com/user-attachments/assets/8c141162-f3d4-481a-832b-07ab5ba86113" />
 </p>
