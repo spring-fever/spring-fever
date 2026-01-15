@@ -15,10 +15,7 @@ $${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
 
 <p align="center"> i am a VERY huge social butterfly, dont feel scared interacting with me! i also like coming up to c+h people, and whispering anyone i please whenever im bored (despite this statement, please understand that i do not have the best social battery at all times. i may come off as dry/annoyed with others. i am not always in the mood to talk; do not pester me or force me to do anything)
 
->will kiss all dandy cosplays i see, apologies if it's made anyone uncomfortable. i will read byi's/boundaries before i do, though
-
 >cant believe i have to say this now but all of my ponies will have my github. please dont fall for copycats!
-
 
 $${\color{yellow}"If ‎ I ‎ could ‎ live ‎ in ‎ third ‎ person..."}$$
 
