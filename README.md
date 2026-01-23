@@ -14,7 +14,7 @@ $${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
 
 <p align="center "> I am very c+h friendly; if you see me alone, feel free to come over! But, if I'm with friends, please ask.
 
-<p align="center"> I don't mind inspo, whether light or heavy, just please ask beforehand! what I don't like is when you're a complete obvious copy of my pony
+<p align="center"> I don't mind inspo, whether light or heavy, just please ask beforehand! What I don't like is when you're a complete obvious copy of my pony
 
 <p align="center"> I am a VERY huge social butterfly, dont feel scared interacting with me! I also like coming up to c+h people, and whispering anyone I please whenever I'm bored (despite this statement, please understand that I do not have the best social battery at all times. I may come off as dry/annoyed with others. I am not always in the mood to talk; do not pester me or force me to do anything)
 
