@@ -12,7 +12,7 @@ $${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
 
 <p align="center"> I joke around and talk too much, please let me know if you are uncomfortable and if theres something about me or my personality that you do not like. I will change my behavior accordingly without question. I'd like if you be direct about it too! Communication is key
 
-<p align="center "> I am very c+h friendly; if you see me alone, feel free to come over! but if I'm with friends, please ask.
+<p align="center "> I am very c+h friendly; if you see me alone, feel free to come over! But, if I'm with friends, please ask.
 
 <p align="center"> I don't mind inspo, whether light or heavy, just please ask beforehand! what I don't like is when you're a complete obvious copy of my pony
 
