@@ -18,7 +18,7 @@ $${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
 
 <p align="center"> I am a VERY huge social butterfly, dont feel scared interacting with me! I also like coming up to c+h people, and whispering anyone I please whenever I'm bored (despite this statement, please understand that I do not have the best social battery at all times. I may come off as dry/annoyed with others. I am not always in the mood to talk; do not pester me or force me to do anything)
 
->Can't believe I have to say this now but all of my ponies will have my GitHub. Poease dont fall for copycats!
+>Can't believe I have to say this now but all of my ponies will have my GitHub. Please dont fall for copycats!
 
 $${\color{yellow}"If ‎ I ‎ could ‎ live ‎ in ‎ third ‎ person..."}$$
 
