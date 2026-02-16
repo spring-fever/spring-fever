@@ -29,5 +29,5 @@ $${\color{blue} ★ ‎ @M—002 ‎ @slyliar}$$
 $${\color{blue}‎  ‎   ‎  ‎   ‎    ‎  ‎  ‎ ‎   ‎  ‎ ‎   ‎   ‎     ‎   ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ᶻ 𝗓 𐰁 ‎ ‎ my girl}$$
 
 <p align="center">
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/dba5fec7-5a36-4923-a2e0-a1fb359af457" />
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/e627d636-6f69-4076-a25d-3c133b395566" />
 </p>
