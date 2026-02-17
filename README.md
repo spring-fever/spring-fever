@@ -1,6 +1,6 @@
 
 <p align="center">
-<img width="1000" height="800" alt="image" src="https://github.com/user-attachments/assets/b7cc99d9-e55f-4f73-bdc5-94e21fefe987" />
+<img width="1000" height="800" alt="image" src="https://github.com/user-attachments/assets/59f53e41-4799-4e43-bd36-9d20895007e4" />
 </p>
 
 $${\color{green}"Let ‎ me ‎ tell ‎ you ‎ about ‎ the ‎ cutest ‎ thing ‎ my ‎ little ‎ pet ‎ rock ‎ did ‎ yesterday!"}$$
