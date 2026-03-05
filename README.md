@@ -3,9 +3,9 @@
 <img width="1000" height="800" alt="image" src="https://github.com/user-attachments/assets/59f53e41-4799-4e43-bd36-9d20895007e4" />
 </p>
 
-$${\color{green}"Let ‎ me ‎ tell ‎ you ‎ about ‎ the ‎ cutest ‎ thing ‎ my ‎ little ‎ pet ‎ rock ‎ did ‎ yesterday!"}$$
+$${\color{orange}"And ‎ here ‎ I ‎ am, ‎ trapped ‎ in ‎ the ‎ bars ‎ of ‎ my ‎ own‎ enclosure."}$$
 
-$${\color{green}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
+$${\color{orange}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
 
 
 <p align="center"> Hello to you, and to you, and of course, you!
