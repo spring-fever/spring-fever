@@ -1,3 +1,5 @@
+ remember to click! [your awareness makes a huge impact](https://arab.org/click-to-help/).
+
 
 <p align="center">
 <img width="1000" height="800" alt="image" src="https://github.com/user-attachments/assets/59f53e41-4799-4e43-bd36-9d20895007e4" />
