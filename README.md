@@ -1,13 +1,13 @@
- remember to click! [your awareness makes a huge impact](https://arab.org/click-to-help/).
+ remember to click! [the world needs you!](https://arab.org/click-to-help/)
 
 
 <p align="center">
 <img width="1000" height="800" alt="image" src="https://github.com/user-attachments/assets/59f53e41-4799-4e43-bd36-9d20895007e4" />
 </p>
 
-$${\color{orange}"And ‎ here ‎ I ‎ am, ‎ trapped ‎ in ‎ the ‎ bars ‎ of ‎ my ‎ own‎ enclosure."}$$
+$${\color{orange}"Of ‎ the ‎ people, ‎ for ‎ the ‎ people."}$$
 
-$${\color{orange}"Hahaha! ‎ ISN'T ‎ THAT ‎ FUNNY!!!"}$$
+$${\color{orange}"Isn't ‎ Soleil ‎ so ‎ happy ‎ with ‎ his ‎ life?"}$$
 
 
 <p align="center"> Hello to you, and to you, and of course, you!
