@@ -1,6 +1,6 @@
  remember to click! [the world needs you!](https://arab.org/click-to-help/)
 
- I do not mind when people ask me for my supporter. Infact, I highly encourage it; I'm more than willing to help in any way I can ❤️
+> I do not mind when people ask me for my supporter. Infact, I highly encourage that you do; I'm more than willing to help in any way I can ❤️
 
 
 <p align="center">
