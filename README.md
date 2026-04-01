@@ -7,7 +7,7 @@
 <img width="1000" height="800" alt="image" src="https://github.com/user-attachments/assets/59f53e41-4799-4e43-bd36-9d20895007e4" />
 </p>
 
-$${\color{orange}"It's ‎ me ‎ that ‎ you ‎ need! ‎ Me, ‎ that ‎ you ‎ depend ‎ on!"}$$
+$${\color{orange}"It's ‎ me ‎ that ‎ you ‎ need! ‎ Me ‎ that ‎ you ‎ depend ‎ on!"}$$
 
 $${\color{orange}"Isn't ‎ Soleil ‎ so ‎ happy ‎ with ‎ his ‎ life?"}$$
 
