@@ -1,4 +1,4 @@
- remember to click! [the world needs you!](https://arab.org/click-to-help/)
+ remember to click! [silence means complicity!](https://arab.org/click-to-help/) please dont forget about the genocides happening in west asia; speak up when you can.
 
 > I do not mind when people ask me for my supporter. Infact, I highly encourage that you do; I'm more than willing to help in any way I can ❤️
 
