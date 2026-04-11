@@ -1,7 +1,5 @@
  remember to click! [silence means complicity!](https://arab.org/click-to-help/) please dont forget about the genocides happening in west asia; speak up when you can.
 
-> I do not mind when people ask me for my supporter. Infact, I highly encourage that you do; I'm more than willing to help in any way I can ❤️
-
 
 <p align="center">
 <img width="1000" height="800" alt="image" src="https://github.com/user-attachments/assets/59f53e41-4799-4e43-bd36-9d20895007e4" />
