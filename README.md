@@ -2,7 +2,7 @@
 
 
 <p align="center">
-<img width="1000" height="800" alt="image" src="https://github.com/user-attachments/assets/59f53e41-4799-4e43-bd36-9d20895007e4" />
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/e627d636-6f69-4076-a25d-3c133b395566" />
 </p>
 
 $${\color{orange}"It's ‎ me ‎ that ‎ you ‎ need! ‎ Me ‎ that ‎ you ‎ depend ‎ on!"}$$
@@ -31,6 +31,4 @@ $${\color{yellow}"—Well, ‎ I ‎ don't ‎ think ‎ life ‎ would ‎ be �
 $${\color{blue} ★ ‎ @M—002 ‎ @squirmirl}$$
 $${\color{blue}‎  ‎   ‎  ‎   ‎    ‎  ‎  ‎ ‎   ‎  ‎ ‎   ‎   ‎     ‎   ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ᶻ 𝗓 𐰁 ‎ ‎ my girl}$$
 
-<p align="center">
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/e627d636-6f69-4076-a25d-3c133b395566" />
-</p>
+
