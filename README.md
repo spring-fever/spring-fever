@@ -1,4 +1,4 @@
- remember to click! [silence means complicity!](https://arab.org/click-to-help/) please dont forget about the genocides happening in west asia; speak up when you can. [donation links](https://x.com/lecpizazz/status/2042621648646574434?s=61) [master thread](https://x.com/searwings/status/2039849696835842129?s=61) [boycott list](https://boycott-israel.org/) you are not just a voice
+ remember to click [silence means complicity!](https://arab.org/click-to-help/) please dont forget about the genocides happening in west asia; speak up when you can. [donation links](https://x.com/lecpizazz/status/2042621648646574434?s=61) [master thread](https://x.com/searwings/status/2039849696835842129?s=61) [boycott list](https://boycott-israel.org/) you are not just a voice
 
 usually lingering around docks or in regiments. i frequent labs, hangouts, whiteboardfoxes, and kingdoms best
 
