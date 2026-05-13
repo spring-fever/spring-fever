@@ -10,8 +10,6 @@ $${\color{orange}"It's ‎ me ‎ that ‎ you ‎ need! ‎ Me ‎ that ‎ you
 
 $${\color{orange}"Isn't ‎ Soleil ‎ so ‎ happy ‎ with ‎ his ‎ life?"}$$
 
-> found this art interesting? intrigued about my oc's? view my [characterhub!](https://characterhub.com/profile/greensneocities)
-
 <p align="center"> Hello to you, and to you, and of course, you!
 
 <p align="center"> I joke around and talk too much, please let me know if you are uncomfortable and if theres something about me or my personality that you do not like. I will change my behavior accordingly without question. I'd like if you be direct about it too! Communication is key
