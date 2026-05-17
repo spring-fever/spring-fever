@@ -10,7 +10,7 @@ usually lingering around docks or in regiments. i frequent labs, hangouts, white
 
 $${\color{yellow}"If  ‎ you  ‎ knew  ‎ what  ‎ I  ‎ knew,  ‎ if  ‎ you  ‎ saw  ‎ what  ‎ I  ‎ see..."}$$
 
-$${\color{yellow}"—You'd ‎  experience  ‎ illusions,  ‎ hallucinations,  ‎ delusions,  ‎ and  ‎ lucid  ‎ dreams!"}$$
+$${\color{yellow}"—You'd ‎  look  ‎ through  ‎ illusions,  ‎ hallucinations,  ‎ and  ‎ lucid  ‎ dreams!"}$$
 
 <p align="center"> Hello to you, and to you, and of course, you!
 
