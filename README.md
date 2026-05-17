@@ -8,9 +8,9 @@ usually lingering around docks or in regiments. i frequent labs, hangouts, white
 
 > like my art or find my characters interesting? view my [charhub!](https://characterhub.com/profile/greensneocities)
 
-$${\color{orange}"It's ‎ me ‎ that ‎ you ‎ need! ‎ Me ‎ that ‎ you ‎ depend ‎ on!"}$$
+$${\color{yellow}"If  ‎ you  ‎ knew  ‎ what  ‎ I  ‎ knew,  ‎ if  ‎ you  ‎ saw  ‎ what  ‎ I  ‎ see..."}$$
 
-$${\color{orange}"Isn't ‎ Soleil ‎ so ‎ happy ‎ with ‎ his ‎ life?"}$$
+$${\color{yellow}"—You'd ‎  experience  ‎ illusions,  ‎ hallucinations,  ‎ delusions,  ‎ and  ‎ lucid  ‎ dreams!"}$$
 
 <p align="center"> Hello to you, and to you, and of course, you!
 
