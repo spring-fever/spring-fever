@@ -3,7 +3,7 @@
 usually lingering around docks or in regiments. i frequent labs, hangouts, whiteboardfoxes, and kingdoms best
 
 <p align="center">
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/e627d636-6f69-4076-a25d-3c133b395566" />
+<img width="700" height="500" alt="image" src="https://github.com/user-attachments/assets/e627d636-6f69-4076-a25d-3c133b395566" />
 </p>
 
 > like my art or find my characters interesting? view my [charhub!](https://characterhub.com/profile/greensneocities)
