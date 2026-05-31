@@ -6,7 +6,7 @@ usually lingering around docks or in regiments. i frequent labs, hangouts, white
 <img width="700" height="500" alt="image" src="https://github.com/user-attachments/assets/e627d636-6f69-4076-a25d-3c133b395566" />
 </p>
 
-> like my art or find my characters interesting? view my [charhub!](https://characterhub.com/profile/greensneocities)
+> like my art or find my characters interesting? view my [charhub](https://characterhub.com/profile/greensneocities) or [pinterest](https://pin.it/2TCVImb7j)!
 
 $${\color{yellow}"If  ‎ you  ‎ knew  ‎ what  ‎ I  ‎ knew,  ‎ if  ‎ you  ‎ saw  ‎ what  ‎ I  ‎ see..."}$$
 
