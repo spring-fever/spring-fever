@@ -6,7 +6,6 @@ usually lingering around docks or in regiments. i frequent labs, hangouts, white
 <img width="800" height="400" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1510713875698548836/IMG_8976.jpg?ex=6a1dd16f&is=6a1c7fef&hm=e248df8f0060868adbafc9a45fb13975534a47f3c1723e8fea3aa9f0f9494fee&" />
 </p>
 
-> like my art or find my characters interesting? view my [charhub](https://characterhub.com/profile/greensneocities) or [pinterest](https://pin.it/2TCVImb7j)!
 
 $${\color{red}"After ‎  seven ‎  years ‎  of ‎  life ‎  upon ‎  the ‎  ocean—"}$$
 
@@ -27,6 +26,9 @@ $${\color{red}"It ‎  is ‎  time ‎  to ‎  bid ‎  the ‎  seven ‎  se
 $${\color{yellow}"If ‎ I ‎ could ‎ live ‎ in ‎ third ‎ person..."}$$
 
 $${\color{yellow}"—Well, ‎ I ‎ don't ‎ think ‎ life ‎ would ‎ be ‎ much ‎ worse ‎ than ‎ it ‎ is."}$$
+
+
+> like my art or find my characters interesting? view my [charhub](https://characterhub.com/profile/greensneocities) or [pinterest](https://pin.it/2TCVImb7j)!
 
 
 $${\color{blue} ★ ‎ @M—002 ‎ @squirmirl}$$
