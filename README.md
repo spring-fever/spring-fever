@@ -13,7 +13,7 @@ $${\color{red}"After ‎  seven ‎  years ‎  of ‎  life ‎  upon ‎  the 
 
 $${\color{red}"It ‎  is ‎  time ‎  to ‎  bid ‎  the ‎  seven ‎  seas ‎  farewell!"}$$
 
-<p align="center"> hey im aero or green. seasian 🇵🇭 cismale
+<p align="center"> hey im aero or green. seasian 🇵🇭 cismale. i draw by the way
 
 <p align="center"> i joke around and talk too much, please let me know if you are uncomfortable and if theres something about me or my personality that you do not like. i will change my behavior accordingly without question. i'd like if you be direct about it too
 
