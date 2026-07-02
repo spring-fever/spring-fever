@@ -1,6 +1,6 @@
  remember to click [silence means complicity!](https://arab.org/click-to-help/) please dont forget about the genocides happening in west asia; speak up when you can. [donation links](https://x.com/lecpizazz/status/2042621648646574434?s=61) [carrd](https://helpourpeople.carrd.co/) [boycott list](https://boycott-israel.org/) you are not just a voice
 
-usually lingering around docks or in regiments. i frequent labs, hangouts, whiteboardfoxes, and kingdoms best
+usually lingering around docks or in regiments either alone, with siblings, or girlfriend. i frequent labs, hangouts, whiteboardfoxes, and kingdoms best
 
 <p align="center">
 <img width="800" height="400" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1510715170513485854/IMG_8978.jpg?ex=6a1dd2a4&is=6a1c8124&hm=8e6ee28a41433839a7342658ba298d5d4858e4137f8cb3bd1a814a9c536071ac&" />
@@ -28,7 +28,7 @@ $${\color{yellow}"If ‎ I ‎ could ‎ live ‎ in ‎ third ‎ person..."}$$
 $${\color{yellow}"—Well, ‎ I ‎ don't ‎ think ‎ life ‎ would ‎ be ‎ much ‎ worse ‎ than ‎ it ‎ is."}$$
 
 
-> like my art or find my characters interesting? view my [charhub](https://characterhub.com/profile/greensneocities) or [pinterest](https://pin.it/2TCVImb7j)!
+> find my art interesting? view my [pinterest](https://pin.it/2TCVImb7j)!
 
 
 $${\color{blue} ★ ‎ @M—002 ‎ @squirmirl}$$
