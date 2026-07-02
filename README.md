@@ -13,17 +13,17 @@ $${\color{red}"After ‎  seven ‎  years ‎  of ‎  life ‎  upon ‎  the 
 
 $${\color{red}"It ‎  is ‎  time ‎  to ‎  bid ‎  the ‎  seven ‎  seas ‎  farewell!"}$$
 
-<p align="center"> Hello to you, and to you, and of course, you!
+<p align="center"> hey im aero or green. seasian 🇵🇭 cismale
 
-<p align="center"> I joke around and talk too much, please let me know if you are uncomfortable and if theres something about me or my personality that you do not like. I will change my behavior accordingly without question. I'd like if you be direct about it too! Communication is key
+<p align="center"> i joke around and talk too much, please let me know if you are uncomfortable and if theres something about me or my personality that you do not like. i will change my behavior accordingly without question. i'd like if you be direct about it too
 
-<p align="center "> I am very c+h friendly; if you see me alone, feel free to come over! But, if I'm with friends, please ask.
+<p align="center "> i am very c+h friendly; if you see me alone, feel free to come over! 
 
-<p align="center"> I don't mind inspo, whether light or heavy, just please ask beforehand! What I don't like is when you're a complete obvious copy of my pony
+<p align="center"> i don't mind inspo, whether light or heavy, just please ask beforehand. what i don't like is when you're a complete obvious copy of my pony
 
-<p align="center"> I am a VERY huge social butterfly, dont feel scared interacting with me! I also like coming up to c+h people, and whispering anyone I please whenever I'm bored (despite this statement, please understand that I do not have the best social battery at all times. I may come off as dry/annoyed with others. I am not always in the mood to talk; do not pester me or force me to do anything)
+<p align="center"> i am a VERY huge social butterfly, dont feel scared interacting with me! i also like coming up to c+h people, and whispering anyone i please whenever i'm bored (despite this statement, please understand that i do not have the best social battery at all times. i may come off as dry/annoyed with others. i am not always in the mood to talk; do not pester me or force me to do anything)
 
->Can't believe I have to say this now but all of my ponies will have my GitHub. Please dont fall for copycats!
+>can)t believe i have to say this now but all of my ponies will have my GitHub. please dont fall for copycats
 
 $${\color{yellow}"If ‎ I ‎ could ‎ live ‎ in ‎ third ‎ person..."}$$
 
