@@ -3,6 +3,7 @@
 usually lingering around docks or in regiments either alone, with siblings/son, or girlfriend. i frequent labs, hangouts, whiteboardfoxes, and kingdoms best
 
 > find my art interesting? view my [pinterest](https://pin.it/2TCVImb7j)!
+
 > interested in your own personal piece of artwork drawn by me? [my commissions are open!](https://greeniescomms.straw.page/)
 
 <p align="center">
