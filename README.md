@@ -18,7 +18,7 @@ usually lingering around docks or in regiments either alone, with siblings/son, 
 
 <p align="center"> i don't mind inspo, whether light or heavy, just please ask beforehand. what i don't like is when you're a complete obvious copy of my pony
 
-<p align="center"> i am a VERY huge social butterfly, dont feel scared interacting with me! i also like coming up to c+h people, and whispering anyone i please whenever i'm bored (despite this statement, please understand that i do not have the best social battery at all times. i may come off as dry/annoyed with others. i am not always in the mood to talk; do not pester me or force me to do anything)
+<p align="center"> i am a VERY huge social butterfly, dont feel scared interacting with me! i also like coming up to c+h people, and whispering anyone i please whenever i'm bored
 
 >can)t believe i have to say this now but all of my ponies will have my GitHub. please dont fall for copycats
 
