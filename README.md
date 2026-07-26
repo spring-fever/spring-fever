@@ -1,6 +1,6 @@
  remember to click [silence means complicity!](https://arab.org/click-to-help/) please dont forget about the genocides happening in west asia; speak up when you can. [donation links](https://x.com/lecpizazz/status/2042621648646574434?s=61) [carrd](https://helpourpeople.carrd.co/) [boycott list](https://boycott-israel.org/) you are not just a voice
 
-usually lingering around docks or in regiments either alone, with siblings/son, or girlfriend. i frequent labs, hangouts, whiteboardfoxes, and kingdoms best
+usually lingering around docks or in regiments either alone, with siblings/son, or girlfriend. i frequent hangouts, whiteboardfoxes, and kingdoms best
 
 > find my art interesting? view my [pinterest](https://pin.it/2TCVImb7j)!
 
