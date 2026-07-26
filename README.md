@@ -7,10 +7,10 @@ usually lingering around docks or in regiments either alone, with siblings/son, 
 > interested in your own personal piece of artwork drawn by me? [my commissions are open!](https://greeniescomms.straw.page/)
 
 <p align="center">
-<img width="800" height="400" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1510715170513485854/IMG_8978.jpg?ex=6a1dd2a4&is=6a1c8124&hm=8e6ee28a41433839a7342658ba298d5d4858e4137f8cb3bd1a814a9c536071ac&" />
+<img width="800" height="400" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1530983157262848131/IMG_8978.jpg?ex=6a678eac&is=6a663d2c&hm=6dede6df6800e5533310894e77e2715161196141093df62431e8d0ce0e2ad972&" />
 </p>
 
-<p align="center"> hey im aero or green. seasian 🇵🇭 cismale. i draw btw
+<p align="center"> hey im aero or green. seasian 🇵🇭 cismale
 
 <p align="center"> i joke around and talk too much, please let me know if you are uncomfortable and if theres something about me or my personality that you do not like. i will change my behavior accordingly without question. i'd like if you be direct about it too
 
