@@ -2,10 +2,10 @@
 <img width="1000" height="30" alt="image" src="https://cdn.discordapp.com/attachments/804978370050916362/1524157786055901517/Tumblr_l_23736222376360.jpg?ex=6a6b124d&is=6a69c0cd&hm=0d286cc2f8385c70de8f2bda8e5d8b725edc18106230a5a9d5ca0fd29962032b&" />
 </p>
 
- <p align=center> 
-<img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1532018973455945829/IMG_9549.gif?ex=6a6b535a&is=6a6a01da&hm=baed5b9eeb88a051f086bb5adfbfa61db97f0ea4fea2b0ca9b0a66d1a111058b&" />
+ <p align=center>
 <img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1532018983598035044/IMG_9550.gif?ex=6a6b535d&is=6a6a01dd&hm=b3396597d5bb4a851971c122c84e7e2cb42482e880a4ba77c658bc683e0154bc&" />
-
+<img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1532018973455945829/IMG_9549.gif?ex=6a6b535a&is=6a6a01da&hm=baed5b9eeb88a051f086bb5adfbfa61db97f0ea4fea2b0ca9b0a66d1a111058b&" />
+<img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1532019629298548917/IMG_9552.gif?ex=6a6b53f7&is=6a6a0277&hm=0e992093f2e73e0fada8c1a80ee700fb1014dbb3752bfd1840800f6a8bee9978&" />
 
  <p align="center">
 <img width="150" height="80" alt="image" src="https://github.com/user-attachments/assets/1a2d8aff-479c-4e73-b7d3-b7871dc27c1a" />
