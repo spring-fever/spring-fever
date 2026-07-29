@@ -12,4 +12,4 @@
 <img width="150" height="80" alt="image" src="https://github.com/user-attachments/assets/1a2d8aff-479c-4e73-b7d3-b7871dc27c1a" />
 </p>
 
-<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/46ed3a7a-5737-4bb8-b501-b36eae128ebb" /> 
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/46ed3a7a-5737-4bb8-b501-b36eae128ebb" /> 
