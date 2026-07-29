@@ -3,8 +3,10 @@
 </p>
 
 <p align="center">
-<img width="150" height="80" alt="image" src="https://github.com/user-attachments/assets/1a2d8aff-479c-4e73-b7d3-b7871dc27c1a" /><img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1531999863393222746/IMG_9536-removebg-preview.png?ex=6a6b418e&is=6a69f00e&hm=1d94a8313c077056afaadf5e18bbaa1527e5b984080a065075321029ab1a4e75&" /><img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1531999765267742942/IMG_9533-removebg-preview.png?ex=6a6b4177&is=6a69eff7&hm=5631ed0cdad7d631333ffd4bf1310e3e9d71cc6688e6eebb16ee6666c83d6b03&" />
-</p>
+<img width="150" height="80" alt="image" src="https://github.com/user-attachments/assets/1a2d8aff-479c-4e73-b7d3-b7871dc27c1a" />
+ <img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1531999863393222746/IMG_9536-removebg-preview.png?ex=6a6b418e&is=6a69f00e&hm=1d94a8313c077056afaadf5e18bbaa1527e5b984080a065075321029ab1a4e75&" />
+ <img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1531999765267742942/IMG_9533-removebg-preview.png?ex=6a6b4177&is=6a69eff7&hm=5631ed0cdad7d631333ffd4bf1310e3e9d71cc6688e6eebb16ee6666c83d6b03&" />
+
 
 
 <p align=center>
@@ -18,7 +20,7 @@
 
 <p align=center> 
 <a href="https://pin.it/1EW0FtdgZ"><img src="https://github.com/user-attachments/assets/d51eb820-7a94-4237-b88c-8afa02d86a9d"><a href="https://springfever.atabook.org/"><img src="https://github.com/user-attachments/assets/f7ea39ca-54dd-4f0e-9653-8dd2b2365947"><a href="https://postlude.straw.page/"><img src="https://github.com/user-attachments/assets/41752007-0bfb-4c28-9168-6ba4ccfb2def"> 
-</a>
+
 
  <p align=center> 
 <a href="https://rentry.co/post-ludes">rentry</a>  <a href="https://greeniescomms.straw.page/">artcomms</a> <a href="https://arab.org/">daily click</a>
