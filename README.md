@@ -19,4 +19,4 @@
 <p align=center> 
  <a href="https://pin.it/1EW0FtdgZ">follow me on pinterest. . . </a>
 
-![GitHub Mini Badge](https://ghstats.dev/api/mini?username=spring-fever&metric=views&label=chocolate+enjoyers&color=734B44&style=flat-square)
+![GitHub Mini Badge](https://ghstats.dev/api/mini?username=spring-fever&metric=profileviews&label=chocolate+enjoyers&color=734B44&style=flat-square)
