@@ -15,7 +15,9 @@
 <img width="300" height="170" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1531992456315539476/CD88704C-4730-4BC2-A5EB-26A5162F7D6C.gif?ex=6a6b3aa8&is=6a69e928&hm=f111e8f50d2eee9818c153205e4682a0003338b5b8ac857f91e878c242cd5a04&" />
 
 <p align=center> 
-<a href="https://pin.it/1EW0FtdgZ"><img src="https://github.com/user-attachments/assets/d51eb820-7a94-4237-b88c-8afa02d86a9d"><a href="https://springfever.atabook.org/"><img src="https://github.com/user-attachments/assets/f7ea39ca-54dd-4f0e-9653-8dd2b2365947"><a href="https://postlude.straw.page/"><img src="https://github.com/user-attachments/assets/41752007-0bfb-4c28-9168-6ba4ccfb2def"> 
+<a href="https://pin.it/1EW0FtdgZ"><img src="https://cdn.discordapp.com/attachments/1357628531089084496/1532021680665264218/IMG_9556.gif?ex=6a6b55e0&is=6a6a0460&hm=1f84bbdb50ca568eed88c17e44685021ff1aa2571ead54e791de902886c82185&">
+<a href="https://springfever.atabook.org/"><img src="https://cdn.discordapp.com/attachments/1357628531089084496/1532021685883240582/IMG_9557.gif?ex=6a6b55e1&is=6a6a0461&hm=b0b7ce2b173ef14faee11447dd4ebed0e48b05627963fe0329dce67698006dc4&">
+<a href="https://postlude.straw.page/"><img src="https://cdn.discordapp.com/attachments/1357628531089084496/1532021689494540400/IMG_9558.gif?ex=6a6b55e2&is=6a6a0462&hm=d54b1a68eb357d7c1bf7f46a23ccf6a3d2112bb856f4b8248122ff0dd58d5734&"> 
 
  <p align=center> 
 <a href="https://rentry.co/post-ludes">rentry</a>  <a href="https://greeniescomms.straw.page/">artcomms</a> <a href="https://arab.org/">daily click</a>
