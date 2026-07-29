@@ -8,9 +8,6 @@
 <img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1531999765267742942/IMG_9533-removebg-preview.png?ex=6a6b4177&is=6a69eff7&hm=5631ed0cdad7d631333ffd4bf1310e3e9d71cc6688e6eebb16ee6666c83d6b03&" />
 </p>
 
- <p align=center> 
-<a href="https://rentry.co/post-ludes">rentry</a>  <a href="https://greeniescomms.straw.page/">artcomms</a> <a href="https://arab.org/">daily click</a>
-
 
 <p align=center>
 <img width="600" height="230" alt="image" src="https://github.com/user-attachments/assets/27859fc7-892f-4966-ac9b-d97bbe55b78a" />
@@ -26,8 +23,8 @@
 <a href="https://springfever.atabook.org/"><img src="https://github.com/user-attachments/assets/f7ea39ca-54dd-4f0e-9653-8dd2b2365947">
 <a href="https://postlude.straw.page/"><img src="https://github.com/user-attachments/assets/41752007-0bfb-4c28-9168-6ba4ccfb2def"> </a> 
 
-
-
+ <p align=center> 
+<a href="https://rentry.co/post-ludes">rentry</a>  <a href="https://greeniescomms.straw.page/">artcomms</a> <a href="https://arab.org/">daily click</a>
 
 
  ![](https://komarev.com/ghpvc/?username=spring-fever&label=chocolates&color=734B44)
