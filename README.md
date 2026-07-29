@@ -1,3 +1,6 @@
+<p align="center">
+<img width="1000" height="20" alt="image" src="https://cdn.discordapp.com/attachments/804978370050916362/1524157786055901517/Tumblr_l_23736222376360.jpg?ex=6a6b124d&is=6a69c0cd&hm=0d286cc2f8385c70de8f2bda8e5d8b725edc18106230a5a9d5ca0fd29962032b&" />
+</p>
 
 <p align="center">
 <img width="150" height="80" alt="image" src="https://github.com/user-attachments/assets/1a2d8aff-479c-4e73-b7d3-b7871dc27c1a" />
