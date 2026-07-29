@@ -3,8 +3,8 @@
 </p>
 
  <p align=center> 
-<img width="300" height="170" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1532018973455945829/IMG_9549.gif?ex=6a6b535a&is=6a6a01da&hm=baed5b9eeb88a051f086bb5adfbfa61db97f0ea4fea2b0ca9b0a66d1a111058b&" />
-<img width="300" height="170" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1532018983598035044/IMG_9550.gif?ex=6a6b535d&is=6a6a01dd&hm=b3396597d5bb4a851971c122c84e7e2cb42482e880a4ba77c658bc683e0154bc&" />
+<img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1532018973455945829/IMG_9549.gif?ex=6a6b535a&is=6a6a01da&hm=baed5b9eeb88a051f086bb5adfbfa61db97f0ea4fea2b0ca9b0a66d1a111058b&" />
+<img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1532018983598035044/IMG_9550.gif?ex=6a6b535d&is=6a6a01dd&hm=b3396597d5bb4a851971c122c84e7e2cb42482e880a4ba77c658bc683e0154bc&" />
 
 
  <p align="center">
