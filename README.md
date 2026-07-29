@@ -10,7 +10,7 @@
 </p>
 
 <p align=center>
-<img width="600" height="250" alt="image" src="https://github.com/user-attachments/assets/27859fc7-892f-4966-ac9b-d97bbe55b78a" />
+<img width="600" height="200" alt="image" src="https://github.com/user-attachments/assets/27859fc7-892f-4966-ac9b-d97bbe55b78a" />
 
  <p align=center> 
  <a href="https://pin.it/1EW0FtdgZ">follow me on pinterest. . . </a>
