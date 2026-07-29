@@ -7,12 +7,6 @@
 <img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1532018973455945829/IMG_9549.gif?ex=6a6b535a&is=6a6a01da&hm=baed5b9eeb88a051f086bb5adfbfa61db97f0ea4fea2b0ca9b0a66d1a111058b&" />
 <img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1532019629298548917/IMG_9552.gif?ex=6a6b53f7&is=6a6a0277&hm=0e992093f2e73e0fada8c1a80ee700fb1014dbb3752bfd1840800f6a8bee9978&" />
 
- <p align="center">
-<img width="150" height="80" alt="image" src="https://github.com/user-attachments/assets/1a2d8aff-479c-4e73-b7d3-b7871dc27c1a" />
-<img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1531999863393222746/IMG_9536-removebg-preview.png?ex=6a6b418e&is=6a69f00e&hm=1d94a8313c077056afaadf5e18bbaa1527e5b984080a065075321029ab1a4e75&" />
-<img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1531999765267742942/IMG_9533-removebg-preview.png?ex=6a6b4177&is=6a69eff7&hm=5631ed0cdad7d631333ffd4bf1310e3e9d71cc6688e6eebb16ee6666c83d6b03&" />
-
-
 <p align=center>
 <img width="600" height="230" alt="image" src="https://github.com/user-attachments/assets/27859fc7-892f-4966-ac9b-d97bbe55b78a" />
 
