@@ -19,16 +19,17 @@
 <img width="300" height="170" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1531992456315539476/CD88704C-4730-4BC2-A5EB-26A5162F7D6C.gif?ex=6a6b3aa8&is=6a69e928&hm=f111e8f50d2eee9818c153205e4682a0003338b5b8ac857f91e878c242cd5a04&" />
 
 <p align=center> 
-<a href="https://pin.it/1EW0FtdgZ"><img src="https://github.com/user-attachments/assets/d51eb820-7a94-4237-b88c-8afa02d86a9d">
-<a href="https://springfever.atabook.org/"><img src="https://github.com/user-attachments/assets/f7ea39ca-54dd-4f0e-9653-8dd2b2365947">
-<a href="https://postlude.straw.page/"><img src="https://github.com/user-attachments/assets/41752007-0bfb-4c28-9168-6ba4ccfb2def"> </a> 
+<a href="https://pin.it/1EW0FtdgZ"><img src="https://github.com/user-attachments/assets/d51eb820-7a94-4237-b88c-8afa02d86a9d"><a href="https://springfever.atabook.org/"><img src="https://github.com/user-attachments/assets/f7ea39ca-54dd-4f0e-9653-8dd2b2365947"><a href="https://postlude.straw.page/"><img src="https://github.com/user-attachments/assets/41752007-0bfb-4c28-9168-6ba4ccfb2def"> 
+</a>
 
  <p align=center> 
 <a href="https://rentry.co/post-ludes">rentry</a>  <a href="https://greeniescomms.straw.page/">artcomms</a> <a href="https://arab.org/">daily click</a>
 
 
- ![](https://komarev.com/ghpvc/?username=spring-fever&label=chocolates&color=734B44)
 
 <p align="center">
 <img width="1000" height="30" alt="image" src="https://cdn.discordapp.com/attachments/804978370050916362/1524157785703448626/Tumblr_l_23738364566047.jpg?ex=6a6b124d&is=6a69c0cd&hm=05757dca57f1d6311abf758bb20ae5d9dbf11460b26b52817c510df51481608a&" />
 </p>
+
+
+ ![](https://komarev.com/ghpvc/?username=spring-fever&label=chocolates&color=734B44)
