@@ -25,3 +25,10 @@
 </p>
 
  ![](https://komarev.com/ghpvc/?username=spring-fever&label=chocolates&color=734B44)
+
+<p align="center"
+<div class="image-container">
+  <img src="https://github.com/user-attachments/assets/d51eb820-7a94-4237-b88c-8afa02d86a9d" alt="Image 1">
+  <img src="https://github.com/user-attachments/assets/f7ea39ca-54dd-4f0e-9653-8dd2b2365947" alt="Image 2">
+  <img src="https://github.com/user-attachments/assets/41752007-0bfb-4c28-9168-6ba4ccfb2def" alt="Image 3">
+</div>
