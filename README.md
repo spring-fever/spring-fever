@@ -4,7 +4,7 @@
 
  <p align=center>
 <img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1532018983598035044/IMG_9550.gif?ex=6a6b535d&is=6a6a01dd&hm=b3396597d5bb4a851971c122c84e7e2cb42482e880a4ba77c658bc683e0154bc&" />
-<img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1532018973455945829/IMG_9549.gif?ex=6a6b535a&is=6a6a01da&hm=baed5b9eeb88a051f086bb5adfbfa61db97f0ea4fea2b0ca9b0a66d1a111058b&" />
+<img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1532018973455945829/IMG_9549.gif?ex=6a76881a&is=6a75369a&hm=94354c1a6df63fe99d74c71c182127d4d9691e654887564840ee802a76644815&" />
 <img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1532019629298548917/IMG_9552.gif?ex=6a6b53f7&is=6a6a0277&hm=0e992093f2e73e0fada8c1a80ee700fb1014dbb3752bfd1840800f6a8bee9978&" />
 
 <p align=center>
@@ -17,7 +17,7 @@
 <p align=center> 
 <a href="https://pin.it/1EW0FtdgZ"><img src="https://cdn.discordapp.com/attachments/1357628531089084496/1532021680665264218/IMG_9556.gif?ex=6a6b55e0&is=6a6a0460&hm=1f84bbdb50ca568eed88c17e44685021ff1aa2571ead54e791de902886c82185&">
 <a href="https://springfever.atabook.org/"><img src="https://cdn.discordapp.com/attachments/1357628531089084496/1532021685883240582/IMG_9557.gif?ex=6a6b55e1&is=6a6a0461&hm=b0b7ce2b173ef14faee11447dd4ebed0e48b05627963fe0329dce67698006dc4&">
-<a href="https://postlude.straw.page/"><img src="https://cdn.discordapp.com/attachments/1357628531089084496/1532021689494540400/IMG_9558.gif?ex=6a6b55e2&is=6a6a0462&hm=d54b1a68eb357d7c1bf7f46a23ccf6a3d2112bb856f4b8248122ff0dd58d5734&"> 
+<a href="https://postlude.straw.page/"><img src="https://cdn.discordapp.com/attachments/1357628531089084496/1532021689494540400/IMG_9558.gif?ex=6a768aa2&is=6a753922&hm=f0b40f88e2f480b48736b672631e6a4a1e72ceba35b5571f3e16daaf160b7bee&"> 
 
  <p align=center> 
 <a href="https://rentry.co/post-ludes">rentry</a>  <a href="https://greeniescomms.straw.page/">artcomms</a> <a href="https://arab.org/">daily click</a>
