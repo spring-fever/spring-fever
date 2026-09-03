@@ -1,6 +1,3 @@
-<p align="center">
-<img width="1000" height="30" alt="image" src="https://cdn.discordapp.com/attachments/804978370050916362/1524157786055901517/Tumblr_l_23736222376360.jpg?ex=6a6b124d&is=6a69c0cd&hm=0d286cc2f8385c70de8f2bda8e5d8b725edc18106230a5a9d5ca0fd29962032b&" />
-</p>
 
  <p align=center>
 <img width="150" height="80" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1532018983598035044/IMG_9550.gif?ex=6a6b535d&is=6a6a01dd&hm=b3396597d5bb4a851971c122c84e7e2cb42482e880a4ba77c658bc683e0154bc&" />
