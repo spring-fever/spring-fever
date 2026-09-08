@@ -15,13 +15,8 @@
 <img width="300" height="170" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1531990800035217538/BC8B39B9-6273-4020-B905-0611723DEC28.gif?ex=6a6b391d&is=6a69e79d&hm=6b1fd589b8ade6b824eee3116397f0a3b7d43c6deadbc882db83a481d86c9df3&" />
 <img width="300" height="170" alt="image" src="https://cdn.discordapp.com/attachments/1357628531089084496/1531992456315539476/CD88704C-4730-4BC2-A5EB-26A5162F7D6C.gif?ex=6a9ab0a8&is=6a995f28&hm=0d0af7b4acbb492dbc926984d9eb2451256f1fc1bad5324e886e891ad7d16ef9&" />
 
-<p align=center> 
-<a href="https://pin.it/1EW0FtdgZ"><img src="https://cdn.discordapp.com/attachments/1357628531089084496/1532021680665264218/IMG_9556.gif?ex=6a9acbe0&is=6a997a60&hm=16be8337347f11b6ac4625f59790cc01951f58e59f57679cf754af0962a5e403&">
-<a href="https://springfever.atabook.org/"><img src="https://cdn.discordapp.com/attachments/1357628531089084496/1532021685883240582/IMG_9557.gif?ex=6a9acbe1&is=6a997a61&hm=fe66a19df8b2d67f292364fbcc0c5cfbf75601965177954e49abeade16739c19&">
-<a href="https://postlude.straw.page/"><img src="https://cdn.discordapp.com/attachments/1357628531089084496/1532021689494540400/IMG_9558.gif?ex=6a9acbe2&is=6a997a62&hm=ae7f0f56a23fe20cda049fc34b49e35dfe40acdf4f472b3c69b65a9de748bbf9&"> 
-
  <p align=center> 
- <a href="https://greeniescomms.straw.page/">artcomms</a> <a href="https://arab.org/">daily click</a> <a href="https://characterhub.com/profile/greensneocities">oc archive</a>
+ <a href="https://guns.lol/post_lude">guns.lol</a> <a href="https://arab.org/">daily click</a> <a href="https://characterhub.com/profile/greensneocities">oc archive</a>
 
 <p align="center">
 <img width="1000" height="30" alt="image" src="https://cdn.discordapp.com/attachments/804978370050916362/1524157786055901517/Tumblr_l_23736222376360.jpg?ex=6a9b310d&is=6a99df8d&hm=ca93294b2e0b326b76acb3422cbd2cdd9c14e51332745ad0dcf92d8b8d2aac03&" />
