@@ -3,7 +3,7 @@
 </p>
 
 <p align=center> 
-my <a href="https://greeniescomms.straw.page">commissions</a> are open! portfolio, tos, and whatever is inside that link
+my *<a href="https://greeniescomms.straw.page">commissions</a>* are open! portfolio, tos, and whatever is inside that link
 
 <p align=center> 
  < <a href="https://guns.lol/post_lude">guns.lol</a> — my links are in here! 3 <a href="https://arab.org/">daily click</a> <a href="https://characterhub.com/profile/greensneocities">oc archive</a>
