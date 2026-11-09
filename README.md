@@ -24,5 +24,11 @@ my *<a href="https://spring-feverr.carrd.co/">commissions</a>* are open! portfol
 <img width="1000" height="30" alt="image" src="https://myimgs.org/storage/images/35526/IMG_0294.png" />
 </p>
 
+<p align=center> 
+my bunch of friends (la peace squad)
+<p align=center> 
+@CAPTAINHORRORS @magicalprincess @starryscreamer < the rider to my aloha 🩷
+
+
  ![](https://komarev.com/ghpvc/?username=spring-fever&label=chocolates&color=734B44)
 
