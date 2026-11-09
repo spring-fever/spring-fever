@@ -6,7 +6,7 @@
 my *<a href="https://spring-feverr.carrd.co/">commissions</a>* are open! portfolio, tos, and whatever is inside that link
 
 <p align=center> 
- < <a href="https://guns.lol/post_lude">guns.lol</a> — my links are in here! 3 <a href="https://arab.org/">daily click</a> <a href="https://characterhub.com/profile/greensneocities">oc archive</a>
+ < <a href="https://guns.lol/post_lude">guns.lol</a> — my links are in here! 3 <a href="https://arab.org/">daily click</a> 
 
  <p align=center>
 <img width="150" height="80" alt="image" src="https://myimgs.org/storage/images/35514/IMG_9550.gif" />
