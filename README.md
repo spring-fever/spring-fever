@@ -27,7 +27,7 @@ my *<a href="https://spring-feverr.carrd.co/">commissions</a>* are open! portfol
 
 
   <p align=center>
-   $\texttt{\color{#db6e49}my bunch of friends (la peace squad)}$
+   $\texttt{\color{#e1ae5c}my bunch of friends (la peace squad)}$
 
 <p align=center> 
 @CAPTAINHORRORS @magicalprincess @starryscreamer < the rider to my aloha 🩷
