@@ -24,10 +24,10 @@ my *<a href="https://spring-feverr.carrd.co/">commissions</a>* are open! portfol
 <img width="1000" height="30" alt="image" src="https://myimgs.org/storage/images/35526/IMG_0294.png" />
 </p>
 
-$\texttt{\color{#c2c19c}wtf}$
+
 
   <p align=center>
-my bunch of friends (la peace squad)
+   $\texttt{\color{#db6e49}my bunch of friends (la peace squad)}$
 
 <p align=center> 
 @CAPTAINHORRORS @magicalprincess @starryscreamer < the rider to my aloha 🩷
