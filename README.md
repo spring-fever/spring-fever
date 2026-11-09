@@ -29,7 +29,8 @@ my *<a href="https://spring-feverr.carrd.co/">commissions</a>* are open! portfol
    $\texttt{\color{#239b66}my bunch of friends (la peace squad)}$
 
 <p align=center> 
-@[CAPTAINHORRORS](https://github.com/CAPTAlNHORRORS) @magicalprincess @starryscreamer < the rider to my aloha 🩷
+<a href="https://github.com/CAPTAlNHORRORS">@CAPTAINHORRORS</a> <a href=https://github.com/magicalprincess">@magicalprincess</a> 
+<a href=https:/https://github.com/starryscreamer">@starryscreamer</a> < the rider to my aloha 🩷
 
 
  ![](https://komarev.com/ghpvc/?username=spring-fever&label=chocolates&color=734B44)
