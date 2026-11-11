@@ -26,10 +26,10 @@ my *<a href="https://spring-feverr.carrd.co/">commissions</a>* are open! portfol
 
 
   <p align=center>
-   $\texttt{\color{#239b66}my bunch of friends (la peace squad)}$
+   $\texttt{\color{#803910}my bunch of friends (la peace squad)}$
 
 <p align=center> 
-@CAPTAINHORRORS @magicalprincess @starryscreamer < the rider to my aloha 🩷
+@CAPTAINHORRORS @magicalprincess @$\texttt{\color{#239b66}@starryscreamer}$ < the rider to my aloha 🩷
 
 
  ![](https://komarev.com/ghpvc/?username=spring-fever&label=chocolates&color=734B44)
